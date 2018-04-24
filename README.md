@@ -1,0 +1,1 @@
+# Criando-Segmentos-de-Clientela
